@@ -1,1 +1,0 @@
-# Ma-ruf-sri-wedding.
